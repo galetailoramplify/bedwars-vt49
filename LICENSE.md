@@ -1,4 +1,4 @@
-#  
+#  ultimate Scripts for bedwars is the best bedwars Script, featuring esp and no clip. Safe and powerful for all your needs.
 
 
 
